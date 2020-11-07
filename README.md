@@ -1,4 +1,15 @@
-# wildysheverandoweb.github.io
-Website Server wildy.cloudns.asia
+WebSite Server
+wildy.cloudns.asia
 
-GA USH MAIN MAIN ENTAR NANGIS ANDA !!!
+<!---Created By Wildy Sheverando---->
+
+
+BACA BAIK BAIK BOSQU
+1. NO DDOS
+2. NO TORRENT
+3. NO SPAM
+4. NO MULTI LOG
+5. NO NO HACKING
+6. NO CRIMINAL
+
+-------------------------------------
